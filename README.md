@@ -6,3 +6,6 @@
 ### Redes sociais
 * Feed: https://shorturl.at/mnPWZ
 * Story: https://shorturl.at/bjmrT
+## RIPAT
+* Feed: https://shorturl.at/iFJL3
+* Story: https://shorturl.at/cAM45
