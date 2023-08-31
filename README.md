@@ -15,3 +15,6 @@
 ## Natal:
 * Feed: https://shorturl.at/csCF3
 * Story: Acho que não tem necessidade, para que o foco de likes fique somente no feed.
+## Documentos para cadastro:
+* Feed: https://shorturl.at/bgtY8
+* Story: https://shorturl.at/djRUW
