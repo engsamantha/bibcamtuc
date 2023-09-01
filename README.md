@@ -18,3 +18,6 @@
 ## Documentos para cadastro
 * Feed: https://shorturl.at/eoJM3
 * Story: https://shorturl.at/emCPU
+-------------------------------------------------------
+## Atualização de cadastro (antigo)
+Feed: https://shorturl.at/cxPV3
