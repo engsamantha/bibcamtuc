@@ -4,7 +4,7 @@
 * Feed: https://shorturl.at/cksBY / https://shorturl.at/bfpGM (apenas pessoas com acesso)
 * Story: https://shorturl.at/kIRV3 / https://shorturl.at/efkxZ (apenas pessoas com acesso)
 ### Redes sociais
-* Feed: https://shorturl.at/mnPWZ
+* Feed: https://shorturl.at/ciCMQ
 * Story: https://shorturl.at/bjmrT
 ## RIPAT
 * Feed: https://shorturl.at/iFJL3
