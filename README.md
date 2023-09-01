@@ -22,5 +22,5 @@
 ## Atualização de cadastro (antigo)
 Feed: https://shorturl.at/cxPV3
 
-## Tutorial
+## Tutorial Normas/GEDWeb
 FINAL: https://shorturl.at/zW479
