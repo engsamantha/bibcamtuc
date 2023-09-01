@@ -5,7 +5,7 @@
 * Story: https://shorturl.at/kIRV3 / https://shorturl.at/efkxZ (apenas pessoas com acesso)
 ### Redes sociais
 * Feed: https://shorturl.at/ciCMQ
-* Story: https://shorturl.at/bjmrT
+* Story: https://shorturl.at/dimns
 ## RIPAT
 * Feed: https://shorturl.at/iFJL3
 * Story: https://shorturl.at/cAM45
