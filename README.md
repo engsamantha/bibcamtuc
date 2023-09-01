@@ -23,4 +23,5 @@
 Feed: https://shorturl.at/cxPV3
 
 ## Tutorial Normas/GEDWeb
-FINAL: https://shorturl.at/zW479
+FINAL: https://shorturl.at/zW479 (fiz algumas alterações)
+
