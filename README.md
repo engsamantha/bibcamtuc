@@ -1,8 +1,8 @@
 # bibcamtuc
 
 ### Portal do Livro Aberto
-* Feed: https://shorturl.at/cksBY
-* Story: https://shorturl.at/kIRV3
+* Feed: https://shorturl.at/cksBY / https://shorturl.at/bfpGM (apenas pessoas com acesso)
+* Story: https://shorturl.at/kIRV3 / https://shorturl.at/efkxZ (apenas pessoas com acesso)
 ### Redes sociais
 * Feed: https://shorturl.at/mnPWZ
 * Story: https://shorturl.at/bjmrT
