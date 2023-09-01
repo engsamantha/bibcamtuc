@@ -12,9 +12,9 @@
 ## Tutoriais
 * Feed: https://shorturl.at/cnI69
 * Story: https://shorturl.at/dzBJT
-## Natal:
+## Natal
 * Feed: https://shorturl.at/qtyN0
 * Story: Acho que não tem necessidade, para que o foco de likes fique somente no feed.
-## Documentos para cadastro:
+## Documentos para cadastro
 * Feed: https://shorturl.at/eoJM3
 * Story: https://shorturl.at/emCPU
