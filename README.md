@@ -23,5 +23,5 @@
 Feed: https://shorturl.at/cxPV3
 
 ## Tutorial Normas/GEDWeb
-FINAL: https://shorturl.at/zW479 (fiz algumas alterações)
+FINAL: https://shorturl.at/zW479 (pesquisar em "elementos" o texto "handwitten number", os números com a cor #8ccdb0 são os do tutorial)
 
